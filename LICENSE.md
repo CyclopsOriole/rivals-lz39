@@ -1,4 +1,4 @@
-
+advanced Scripts for rivals is the best rivals Script, featuring private server access and silent aim. Safe and powerful for all your needs.
 
 
 
